@@ -1,4 +1,1 @@
-<div align="center">
-<img width="200" height="200" alt="25d9154fd4214eb96f0aec7a85942318-removebg-preview (2)" src="https://github.com/user-attachments/assets/a93a53c6-df6e-43b4-89fc-b533e2531129" />
-<div align="center">
-aww guys. hes so cute aw aww
+<img width="734" height="424" alt="5950daf1a034f42ec247d872cb3a3e39" src="https://github.com/user-attachments/assets/6b749667-ac03-40d5-aae8-8e8cdd988c17" />

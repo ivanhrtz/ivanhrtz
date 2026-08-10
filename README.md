@@ -1,1 +1,4 @@
-<img width="735" height="668" alt="64050c9c5a445a82f1528d831f481d8e" src="https://github.com/user-attachments/assets/55c15cc4-4f76-407e-9919-65d11e842902" />
+<p align="center">
+<img width="281" height="209" alt="Screenshot_20260810-125450" src="https://github.com/user-attachments/assets/e2e062f1-d568-4675-9acc-5b3235acdb6e" />
+ <p align="center"> 
+OMG KASPER STOP.KAPSOER
